@@ -1,1 +1,1 @@
-# Glamorous-Ranch
+# Glamorous-Glizzy
